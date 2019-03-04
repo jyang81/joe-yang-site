@@ -1,4 +1,4 @@
-Joe Yang Design Website
+Exceptional Realty Group Website
 ---
 
 # Description
